@@ -1,1 +1,1 @@
-# yurrriq.codes
+#yurrriq.codes
